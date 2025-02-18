@@ -47,9 +47,3 @@ Aix创始人老张联系方式/Aix founder zhang contact:
 On June 9, 2024, today marks the first anniversary of the founding of our AIX team. As we move forward, some have retired, some have stopped, and some are lost. Although the road is long and obstructed, the original intention remains unchanged, and the future is long.
 
 ### Aix团队-张宏坤，Shatter，Oceh，满心欢喜，T8.star以及团队内其他所有成员/Aix Team-Zhang Hongkun,Shatter,Oceh,满心欢喜，T8.star and other team members.
-
-<img src="https://github.com/T8star1984/Comfyui-Aix-NodeMap/blob/main/pic/ea6fa56ed52acfd50587b5ef25da9d5.png" width="600"  alt="会员作品"/><br/>
-<img src="https://github.com/T8star1984/Comfyui-Aix-NodeMap/blob/main/pic/fe7acfbd38ee369220c0846f0839d6f.png" width="600"  alt="会员作品"/><br/>
-
-
-
